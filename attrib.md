@@ -1,0 +1,2 @@
+<a href='https://www.freepik.com/vectors/people'>People vector created by vectorpocket - www.freepik.com</a>
+<a href='https://www.freepik.com/vectors/light'>Light vector created by vectorpocket - www.freepik.com</a>
